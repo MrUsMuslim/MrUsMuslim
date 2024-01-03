@@ -1,0 +1,5 @@
+- 👋 Hi, My name is Muslim
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning pythom
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me via Messanger https://t.me/MUSLIM__RICH
